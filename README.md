@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VertrauensGamer
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning Python(soon Java)
+- 📫 How to reach me DISCORD! @vertrauensgamer
+- 😄 Pronouns: He/Him
